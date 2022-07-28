@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @nnson0310
+- 👀 I’m interested in food
+- 🌱 I’m currently learning how to kill a crockroach
+- 💞️ I’m looking to collaborate on developing a time machine
+- 📫 How to punch me by a thunder bolt
